@@ -2,7 +2,7 @@
 - 🙈 SAYA DARI JAKARTA 
 - 🗿 I LOVE BUMI:v
 - 🥲 JOMBLO 
-- 📫 MINTA DM YAH:V
+- 📫 MINAT DM YAH:V
 - ⚡ IG = Reyy
 
 <!---
